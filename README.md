@@ -1,1 +1,1 @@
-# CS-300-8-2-Journal
+# CS-255-8-2-Journal
